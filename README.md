@@ -1,6 +1,7 @@
-## **ᯓ★ call me Noah/Liam 𖦹‧**
+## **ᯓ★ call me Noah! 𖦹‧**
 
-![image](https://github.com/user-attachments/assets/14d2a033-cdc7-40dd-a1d0-f4e2d1b9f68b)
+<img width="280" height="210" alt="image" src="https://github.com/user-attachments/assets/3b9af0d5-c231-42a5-a763-06475dc0d199" />
+
 
 ⌗﹒🦇﹒౨ৎ˚₊ ***"destroy something to make it beautiful, but don't destroy me."***
 
@@ -11,6 +12,6 @@
 
 ![image](https://github.com/user-attachments/assets/ecdf4b24-4583-4424-9151-b063292550ed)
 
-💉٠࣪⭑ MCR, dinosaur, mlp, Marvel, alien fans pls int !! ^^
+💉٠࣪⭑ MCR, dinosaur, mlp, Marvel, MJ fans pls int !! ^^
 
 bye bye ! ⊱  ۫ ׅ ✧
