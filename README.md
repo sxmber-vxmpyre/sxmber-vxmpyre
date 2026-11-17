@@ -10,7 +10,8 @@
 <img width="245" height="200" alt="image" src="https://github.com/user-attachments/assets/23df35ed-e04b-41ab-8fe6-6cc6cb8b8658" />
 
 
-🦇﹒౨ৎ˚₊ ***"destroy something to make it beautiful, but don't destroy me."***
+🦇﹒౨ৎ˚₊
+***"destroy something to make it beautiful, but don't destroy me."***
 
 •———–——— .𖥔 ݁ ˖🛸.𖥔 ݁ ˖ ———–———•
 
@@ -22,6 +23,12 @@
 
 🪶٠࣪⭑ 
 MCR, dinosaur, astronomy, Marvel, MJ fans pls int!!
+
+🎱⋆ ݁. 
+my wifi isn’t the best so i often disconnect for short periods. 
+
+🕯️𖦹. ݁ 
+i’m also a very busy person, so if i leave without saying something don’t take it personally!!
 
 •———–——— .𖥔 ݁ ˖🛰️.𖥔 ݁ ˖ ———–———•
 
